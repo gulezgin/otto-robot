@@ -1,4 +1,6 @@
 # otto-robot
 
-https://github.com/user-attachments/assets/bc80909e-f671-481f-b0f6-501d7d393040
+
+
+https://github.com/user-attachments/assets/fac9e90b-0d34-49dd-ad12-1386ee772b8a
 
